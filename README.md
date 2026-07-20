@@ -1,1 +1,0 @@
-# kuis-ciri-khusus-tubuh-hewan
